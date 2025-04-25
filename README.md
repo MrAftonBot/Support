@@ -1,2 +1,2 @@
 # Support
-Support &amp; Comunity
+[Support & Comunity](https://discord.gg/s6FbZn5q8k)
